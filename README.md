@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @VilikeNumbuh3
+- 🌱 I’m currently learning
+- 📫 in class
